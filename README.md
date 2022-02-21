@@ -5,7 +5,6 @@
 - 🌱 I’m currently learning bot whatsapp
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-https://wa.me601136151330?text=banhhh
 
 
 <!---
