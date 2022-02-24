@@ -1,7 +1,8 @@
 
 
 - 👋 Hi, I’m @BeluNgas
-- 👀 I’m interested in ...
+- 🙇🏻‍♂️ I'm 15 years old
+- 👀 I’m interested in program
 - 🌱 I’m currently learning bot whatsapp
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
